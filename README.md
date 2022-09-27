@@ -1,1 +1,1 @@
-# mathkids
+# mathematics kids 
